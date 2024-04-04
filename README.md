@@ -1,1 +1,1 @@
-# Dolgozat
+Mohácsi Gergő
